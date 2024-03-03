@@ -1,1 +1,1 @@
-za chto?s
+za chto?
