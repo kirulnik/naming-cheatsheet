@@ -1,2 +1,3 @@
-za chto2?
-za chto2?
+za chto?
+za chto?
+
